@@ -1,1 +1,5 @@
-# muhammadxoja
+- 👋 Hi, I’m @kimyonazarov
+- 👀 I’m interested in IT
+- 🌱 I’m currently learning "back end"
+- 📫  to reach me kimyonazarovmuhammadxoja@gmail.com
+- ⚡thank you for your attention
